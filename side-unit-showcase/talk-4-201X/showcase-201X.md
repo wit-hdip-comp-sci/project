@@ -1,3 +1,3 @@
-Final Project Showcase 2022
+Final Project Showcase 201X
 
-Projects from 2022 Graduating Class
+Earlier projects
